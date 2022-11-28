@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @stanchbg
-- 👀 I’m interested in crypto mining,trading,DFT creator
+- 👀 I’m interested in learning.
+- 
 - 🌱 I’m currently learning to live a good live
 - 💞️ I’m looking to collaborate 
 - 📫 Reach me 
